@@ -16,5 +16,5 @@
 **Você pode entrar em contato comigo:**
 👻 thiago.perlatto.oliveira@escola.pr.gov.br
 
-((https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F832040099929724896%2F&psig=AOvVaw3rhfkGYcVWGqmW3aqvDKqK&ust=1728734514340000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCMDGzYakhokDFQAAAAAdAAAAABAE))
+
   
